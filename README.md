@@ -1,4 +1,4 @@
-# PWIA - CZESC TEXAS JESTEM Bigos
+# PWIA - CZESC  JESTEM Bigos
 Zobacz jak smakuje prawdziwy bigos tradycyjny. Poznaj mój sprawdzony przepis na bigos z dużą ilością różnych mięs, z suszonymi grzybami, śliwkami i idealnie dobranymi przyprawami. To danie, które Cię zachwyci.
 
 - przepis na bigos staropolski
